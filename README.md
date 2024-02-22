@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @abhinavshankr
-- 👀 I’m interested in Electronics & Computer Science
+- 👀 I’m interested in Electronics, Computer Science & Finance.
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me : message me on linkedin (https://linkedin.com/in/abhinavshankr)
